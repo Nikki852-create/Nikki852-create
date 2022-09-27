@@ -9,3 +9,4 @@ Nikki852-create/Nikki852-create is a ✨ special ✨ repository because its `REA
 You can click the Preview link to take a look at your changes.
 --->
 My identity was stolen my name is associated with anything and everything but I have nothing.my inpersonater is my agent and is using the Verizon mobile business platforms to steal people's identity. I Just want my life back. I am the real Nikki kindelberger.
+I can be reached at kindelbergernikki1@gmail.com.this guy also stole my singing voice and all of my global payments iny name. I can't get a bank account cause my name is on all of them not to mention cars and houses to.
